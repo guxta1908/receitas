@@ -6,9 +6,10 @@
 
 ### Ingredientes:
 
-##### - 1 kilo de peito de frango.
+- 1 kilo peito de frango
 
-
+- 2 latas de creme de leite
+- 
 
 
 
